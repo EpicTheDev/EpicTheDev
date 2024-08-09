@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @EpicTheDev
+- 👀 I’m interested in games
+- 🌱 I’m currently learning progrom
+- 💞️ I’m looking to collaborate on nothing if you ain't on my team then nuh uh
+- 📫 How to reach me dickord feckster
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I'm Estonian
